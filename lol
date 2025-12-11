@@ -1,1 +1,1 @@
-o kurwa
+depression
